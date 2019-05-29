@@ -6,7 +6,7 @@
  
  Don't Forget Follow My Blog's
  
- https://www.bekasisec.zone.id
+ https://www.bekasisec.zone.id | 
  https://www.kang-gim.zone.id
  
  # I GIVE A FUCK 
